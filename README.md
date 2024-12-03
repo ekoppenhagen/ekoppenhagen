@@ -6,4 +6,4 @@
 💞️ I’m happily married with 1 kid.
 🌱 I’m currently learning how to simultaneously spent time with my family, work, go to the gym and still have some time for hobbies.
 
-📫 How to reach me: LinkedIn or Xing
+📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/erik-koppenhagen/) or [Xing](https://xing.com/profile/Erik_Koppenhagen/)
